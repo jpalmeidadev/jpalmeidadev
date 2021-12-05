@@ -1,5 +1,5 @@
 # 👋 Hi, I’m @jpalmeidadev
-- 👀 I’m interested in learning JavaScript 
+- 👀 I’m interested in watch Hunter x Hunter, heheh!! 
 - 🌱 I’m currently learning C
 
 <!---
